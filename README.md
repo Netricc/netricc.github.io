@@ -1,1 +1,0 @@
-# netricc.github.io
